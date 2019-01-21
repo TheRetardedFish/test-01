@@ -9,3 +9,5 @@ A lot of information has been hidden from the community about Traven. me, so it'
 3. Adrian chose a catfish over Traven who hosted the bot for everyone.
 4. Dini doesn't care about telling the truth.
 5. Traven stole the code for an 8Ball function.
+
+If you have any questions, comments, or anything.... send a friend request to Traven#3020 or join his personal server (https://discord.gg/w8dTUeH). The majority of the staff members there can confirm everything here to be true. 
